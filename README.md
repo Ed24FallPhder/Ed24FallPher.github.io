@@ -3,7 +3,7 @@
 >
 >
 # 这里是一些开学前准备文件 ATAS 机场学校路线 签证 地图
-
+>
 # [atas_guide_june_23_0(3).pdf](https://github.com/Ed24FallPhder/Ed24FallPher.github.io/files/14739844/atas_guide_june_23_0.3.pdf)
 
 # [爱丁堡新生“机场-学校”交通指南2023版(4).pdf](https://github.com/Ed24FallPhder/Ed24FallPher.github.io/files/14739615/-.2023.4.pdf) 
